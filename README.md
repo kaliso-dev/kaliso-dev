@@ -1,0 +1,2 @@
+- 👋 Salut, je suis @kaliso-dev
+- 👀 je suis très interéssé par l'informatique en particulier les domaines du hacking (cybersécurité) et de la programmation malgrè mon jeune âge.
